@@ -1,1 +1,4 @@
 # KecerdasanBuatanUAS
+## MUHAMMAD SHIDDIQ
+## TI.22.B1
+## 312210125
